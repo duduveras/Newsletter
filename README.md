@@ -1,4 +1,3 @@
 # Newsletter
-PROJETO EM PRODUÇÂO...
 
 
